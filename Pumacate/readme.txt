@@ -1,1 +1,0 @@
-Alex Gerardo Fernandez Aguilar
